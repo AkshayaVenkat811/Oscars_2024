@@ -32,41 +32,43 @@ Notably, this year, five past winners in each acting category will together anno
 
 
 # BEST ACTRESS
-Annett Bening - Nyad
-Lily Gladstone - Killers of the Flower Moon
-Sandra Huller - Anatomy of a Fall
-Carey Mulligan - Maestro
-Emma Stone - Poor Things -  WINNER
+Emma Stone for  Poor Things is the WINNER.
+The other nominations were Annett Bening - Nyad,
+Lily Gladstone - Killers of the Flower Moon,
+Sandra Huller - Anatomy of a Fall,
+Carey Mulligan - Maestro.
+
 
 # BEST ACTOR
-Bradley Cooper - Maestro
-‘Colman Domingo - Rustin
-Paul Giamatti - The Holdovers
-Cillian Murphy - Oppenheimer -  WINNER
-Jeffrey Wright - American Fiction
+Cillian Murphy for Oppenheimer is the  WINNER.
+The other nominations were Bradley Cooper - Maestro,
+‘Colman Domingo - Rustin,
+Paul Giamatti - The Holdovers,
+Jeffrey Wright - American Fiction.
 
 
 # BEST SUPPORTING ACTOR
-Sterling K Brown - American Fiction
-Robert De Niro - Killers of the Flower Moon
-Robert Downey Jr - Oppenheimer - WINNER 
-Ryan Gosling - Barbie
-Mark Ruffalo - Poor Things
+Robert Downey Jr for Oppenheimer is the WINNER .
+The other nominations were Sterling K Brown - American Fiction,
+Robert De Niro - Killers of the Flower Moon,
+Ryan Gosling - Barbie,
+Mark Ruffalo - Poor Things.
 
 
 # BEST DIRECTOR
-Anatomy of a Fall - Justine Triet
-Killers of the Flower Moon - Martin Scorsese
-Oppenheimer - Christopher Nolan - WINNER
-Poor Things - Yorgos Lanthimos
-The Zone of Interest - Jonathan Glazer
+Oppenheimer for Christopher Nolan is the WINNER
+The other nominations were Anatomy of a Fall - Justine Triet ,
+Killers of the Flower Moon - Martin Scorsese ,
+Poor Things - Yorgos Lanthimos ,
+The Zone of Interest - Jonathan Glazer.
 
-BEST SUPPORTING ACTRESS
-Emily Blunt - Oppenheimer
-Danielle Brooks - The Color Purple
-America Ferrera - Barbie
-Jodie Foster - Nyad
-Da’Vine Joy Randolph - The Holdovers - WINNER
+# BEST SUPPORTING ACTRESS
+Da’Vine Joy Randolph for The Holdovers is the WINNER
+The other nominations were Emily Blunt - Oppenheimer,
+Danielle Brooks - The Color Purple,
+America Ferrera - Barbie,
+Jodie Foster - Nyad.
+
 
 
 
