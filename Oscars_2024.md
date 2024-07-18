@@ -4,15 +4,24 @@ Comedian Jimmy Kimmel hosted the show for the fourth time. He first presided ove
 In related events, the Academy held its 14th Governors Awards ceremony at the Ray Dolby Ballroom of the Ovation Hollywood complex in Hollywood, on January 9, 2024.
 
 The Academy Scientific and Technical Awards were presented by host Natasha Lyonne on February 27, 2024, in a ceremony at the Academy Museum of Motion Pictures in Los Angeles.
-Oppenheimer won seven awards, including Best Picture.[9] Other winners included Poor Things with four awards, The Zone of Interest with two, and American Fiction, Anatomy of a Fall, Barbie, The Boy and the Heron, Godzilla Minus One, The Holdovers, The Last Repair Shop, 20 Days in Mariupol, War Is Over!, and The Wonderful Story of Henry Sugar with one.
+Oppenheimer won seven awards, including Best Picture. 
+
+Other winners included Poor Things with four awards, The Zone of Interest with two, and American Fiction, Anatomy of a Fall, Barbie, The Boy and the Heron, Godzilla Minus One, The Holdovers, The Last Repair Shop, 20 Days in Mariupol, War Is Over!, and The Wonderful Story of Henry Sugar with one.
 
 
 The telecast drew 19.5 million viewers in the United States.
 
 
 # Winners and nominees
-The nominees for the 96th Academy Awards were announced on January 23, 2024, at the Samuel Goldwyn Theater in Beverly Hills, by actors Zazie Beetz and Jack Quaid.[11] Oppenheimer led all nominees with thirteen nominations; Poor Things came in second with eleven.[12] The winners were announced during the awards ceremony on March 10. At age 81, Martin Scorsese became the oldest Best Director nominee in Oscar history. Best Actress nominee Lily Gladstone was the first US-born Native American person nominated in that category.[13] The 49-year gap between Robert De Niro's first nomination for The Godfather Part II and his latest for Killers of the Flower Moon set the record for longest gap between first and most recent career Oscar nominations. Having previously won for composing the titular song for 2021's No Time to Die, Best Original Song co-winner Billie Eilish became the youngest person to win two Oscars.
-Best Sound winner -  The Zone of Interest and  Best Visual Effects winner - Godzilla Minus One were the first non-English language films to win their respective categories
+The nominees for the 96th Academy Awards were announced on January 23, 2024, at the Samuel Goldwyn Theater in Beverly Hills, by actors Zazie Beetz and Jack Quaid. 
+
+Oppenheimer led all nominees with thirteen nominations; Poor Things came in second with eleven. The winners were announced during the awards ceremony on March 10. 
+
+At age 81, Martin Scorsese became the oldest Best Director nominee in Oscar history. Best Actress nominee Lily Gladstone was the first US-born Native American person nominated in that category.  
+
+The 49-year gap between Robert De Niro's first nomination for The Godfather Part II and his latest for Killers of the Flower Moon set the record for longest gap between first and most recent career Oscar nominations. 
+Having previously won for composing the titular song for 2021's No Time to Die, Best Original Song co-winner Billie Eilish became the youngest person to win two Oscars.
+Best Sound winner is "The Zone of Interest" and  Best Visual Effects winner is "Godzilla Minus One" were the first non-English language films to win their respective categories
 
 
 Hollywood’s biggest night is here! The 96th edition of the Academy Awards, the most prestigious event in Hollywood, is being held at the Dolby Theatre in Calfornia, United States, with Jimmy Kimmel returning as the host for the fourth time.
